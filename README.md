@@ -10,7 +10,7 @@
 
 <h3 dir="ltr" style="text-align: justify;"><span style="font-size:22px;"><span style="font-family:Verdana,Geneva,sans-serif;"><strong> Oracle 1Z0-1073-22 Dumps Material Formats:</strong></span></span></h3>
 
-<p dir="ltr" style="text-align: justify;">The learning material is accessible in three unique formats; PDF, a work area practice test, and an online practice test.Oracle 1Z0-1073-22 Dumps is planned by experts while saving the most recent prospectus to them for Oracle 1Z0-1073-22 exam.The sans bug designs have been given to you all to breeze through Oracle Cloud Supply Chain Management (SaaS - SCM) certification exam.</p>
+<p dir="ltr" style="text-align: justify;">The learning material is accessible in three unique formats; PDF, desktop practice test, and web based practice test.Oracle 1Z0-1073-22 Dumps is planned by experts while saving the most recent prospectus to them for Oracle 1Z0-1073-22 exam.The sans bug designs have been given to you all to breeze through Oracle Cloud Supply Chain Management (SaaS - SCM) certification exam.</p>
 
 <ul dir="ltr">
 	<li style="text-align: justify;"><span style="font-size:16px;"><span style="font-family:Verdana,Geneva,sans-serif;"><b>Desktop Oracle 1Z0-1073-22 Practice Test Software: </b></span></span></li>
